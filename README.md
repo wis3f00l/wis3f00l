@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @wis3f00l
-- 👀 I’m interested in ... bycicle and human behaviour
+- 👀 I’m interested in ... cycling, observing human behaviour and creating websites
 - 🌱 I’m currently learning ... programming 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... canilaoorvillethomas@gmail.com
